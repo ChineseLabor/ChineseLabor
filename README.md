@@ -1,7 +1,5 @@
 # **Hey what's up?**
-I'm just a normal regular person on here nothing to see here trust me.
-< [!NOTE]
-< Totally not lying.
+I'm honestly just here to share my stuff with people sometimes.
 <!---
-This is your special respository!
+"We are gonna so get lit"
 --->
